@@ -4,4 +4,4 @@ _Mi presentación_
 Estudio en el centro integrado Cuatrovientos, tengo 20 años y estoy haciendo un grado superior de programación.
 
 
-![](http://cuatrov1-cp5028.wordpresstemporal.com/wp-content/uploads/2019/07/logo-cuatrovientos-2-1)
+![](https://media.floresfrescasonline.com/product/rosas-azules-800x800_7PhYUEG.jpeg)
