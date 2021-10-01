@@ -5,3 +5,5 @@ Estudio en el centro integrado Cuatrovientos, tengo 20 años y estoy haciendo un
 
 
 ![](https://media.floresfrescasonline.com/product/rosas-azules-800x800_7PhYUEG.jpeg)
+
+Versión de desarrollo, añadiendo beunas funcionalidades 
