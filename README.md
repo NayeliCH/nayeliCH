@@ -6,4 +6,4 @@ holaa
 
 ![](https://media.floresfrescasonline.com/product/rosas-azules-800x800_7PhYUEG.jpeg)
 
-Versión de desarrollo, añadiendo nuevas funcionalidades 
+Versión de  de producción, añadiendo nuevas funcionalidades 
